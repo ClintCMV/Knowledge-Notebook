@@ -1,1 +1,2 @@
-### [The Hitchhiker's Guide to the Galaxy](https://en.wikipedia.org/wiki/The_Hitchhiker%27s_Guide_to_the_Galaxy)
+###[The Hitchhiker's Guide to the Galaxy](https://en.wikipedia.org/wiki/The_Hitchhiker%27s_Guide_to_the_Galaxy)
+This is one of those books that easily can put me into a wonderful mode by reading or looking back on. It's absurd humor is  one of the best outlooks on life and the meaningless void that surrounds us.
